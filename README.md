@@ -131,3 +131,4 @@ Your Name - [jason82autotech@gmail.com] - [https://www.linkedin.com/in/jason-gra
 ]
 
 ---
+I used the help of ChatGPT, calssmates, instructor, and Ta;'s. I also used Google extensively and lots of you tube videos!
